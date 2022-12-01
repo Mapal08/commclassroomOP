@@ -5,5 +5,4 @@
 - I love MLH
 - More power to kunal. love the work which your are doing for the community.
 - Anirudh Sharma finds the Community Classroom initiative really great!
-- This is Mayank Pal.
-- Btech student from MIET.
+- Thank you kunal for the amazing playlist to learn new things.
